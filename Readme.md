@@ -2,42 +2,46 @@
 #### No Signal
 
 #### PRESENTATION 
-Coffee professional discord  
+Jared Tucker: 
+mentions: Coffee professional discord  
 
-advice recipees things like that ... message on floridacoffeeculture to get that link  
-discounts if on keychain  
+In the discord you will find
+Advice on recipees and things like that ... message us on floridacoffeeculture to get that link  
+Baristas can get discounts on florida coffee culture keychain  
 
+Andrew Curry:
 what finding a career in coffee means to me
-noticed, for everyone that works in coffee
+noticed, for everyone that works in coffee there is an
 
 aha moment
 
-pivital moment that fundamentally changes how we view coffee
+a pivital moment that fundamentally changes how we view coffee
+for me it was at a
 japan ucc coffee diner in kyoto
 living in poke at the time
 
-on the way back in the train station
+on the way back, I was sitting in the train station and
 ran into a row of coffee brewers
 
 sat down, ordered a simple egg an toast breakfast with coffee
 best cup of coffee he had ever had
 
-from that point on considered coffee different
+from that point on I considered coffee differently
 
-after japan living in seattle capital city neighborhood
+After Japan, living in Seattle's capital city neighborhood
 went to cafe vita
 
 took the coffee black - best cup of coffee
-ok, coffee is really cool
+ok, coffee is really cool.
 
 moved to san francisco with a food truck event company.
 
 trucks would gather and put on music
 
-loved it
+loved it.
 
-met tons of talented chefs but something was missing
-I just was not connecting with my job, wanted to connect with my hand and do something 
+met tons of talented chefs, but something was missing
+I just was not connecting with my job, wanted to connect with my hands and do something 
 
 blue bottom coffee ... applied
 left salaried position and applied as barista
@@ -45,7 +49,7 @@ left salaried position and applied as barista
 took a huge risk
 after accepted, week of regret
 
-how will I survive. how will I make this happen.
+how will I survive? how will I make this happen?
 
 they had a farmers market outside; one of the best.
 
@@ -53,24 +57,25 @@ fresh fruits
 
 it was incredible
 
-we had 8 drippers setup ... make drip coffee all day long
+we had an 8 drippers setup ... make drip coffee all day long
 
-camping kettles basically with gas propaine setup
-barter with all different farmers and producers ... okay make their mocas
+camping kettles, basically, with a gas propaine setup.
+we would barter with all different farmers and producers ... okay, [I thought/said], I will make their mocas!
 
-ride the bike home, with fruit on the bike as you go home. it was awesome.
+ride the bike home, with fruit on the bike as you go home. It was awesome.
 
 went somewhere else, I was still learning coffee but they needed someone to fill manager position.
-huge staff, moving pieces.
+huge staff, lot of moving pieces.
 
-funny story, backtrack, learned steam milk and latte art
-someone was constantly pulling shots ... picking up milk steaming
+funny story, backtrack, when I learned to steam milk and do latte art
+someone was constantly pulling shots while picking up and steaming  milk
 steam and pour at same time!
 
-at first you do learn that skill
+at first when you learn that skill [you think there is no way]
 but eventually you find the way
 
-gave him access to bakers, roasters, more cuppings ... really wanted to learn if was going to be in that role.
+[the new job ...]
+gave him access to bakers, roasters, more cuppings ... really good if tiy wanted to learn that role.
 
 4 or 5 months later learned that blue bottle would expand to japan.
 
@@ -84,8 +89,8 @@ downstairs with roaster and greenbean storage and upstairs? we did coffee servic
 espresso drinks 70% ... on ferry
 little did we know it would be drip coffee. 
 
-we quickly learned espresso would not suffice
-so was taken back to roots which was pretty fun
+we quickly learned espresso would not suffice [for the customers]
+so I was taken back to [drip coffee] roots which was pretty fun
 
 after expansion in tokyo we opened more stores in japan and I helped expand the brand
 they eventually got purchased by another company
