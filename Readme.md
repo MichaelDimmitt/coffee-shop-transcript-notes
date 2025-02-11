@@ -1,6 +1,6 @@
-#### No Signal
+## Start of presentation [No Signal] ... pending
 
-#### PRESENTATION 
+## PRESENTATION 
 Jared Tucker:  
 mentions: Coffee professional discord   
 
@@ -153,7 +153,7 @@ had to drive it from orlando to here!
 another full circle kind of moment  
 sold the truck to our friends in charleston who were the inspiration to get started with the company!  
   
-#### QUESTIONS  
+## QUESTION and ANSWER Session
 (steve)  
 going from day job to ...   
   
