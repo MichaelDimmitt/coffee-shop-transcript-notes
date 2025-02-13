@@ -445,82 +445,82 @@ So bit bullet 350 a month and they kind of teach you.
 (Question)  
 Why do you both use slayer machine?  
 (Steve)  
-Sarasota taproot moment.  
+Sarasota Taproot moment.  
   
-Bold bean had a slayer, [slayer was] having a moment then  
-did not have money for it, so did not do it  
+Bold Bean had a slayer, [slayer was] having a moment then;  
+did not have money for it, so did not do it.  
   
 Fully utilize slayer machine, way finer 45 to 60 second shot times  
-would probably not get a steam  
+would probably not get a steam.  
   
-We weigh our dose  
-we weigh our yeild and use something for timing  
+We weigh our dose.  
+we weigh our yeild and use something for timing.  
   
 But it can be daunting when prepping milk and talking to people  
-steam being able to volumetric and shot timers  
+steam being able to volumetric and shot timers [could help?].  
   
 (Andrew)  
 Address - previous jobs, had machine that would break down  
-had a friend who designed the machine  
+had a friend who designed the machine.  
   
 Had a friend who had slayer steam and he worked with it  
-digital display used to break down a lot  
+digital display used to break down a lot.  
   
 (question)  
 Thoughts on coffee as an art vs commodity?  
 (Steve)  
 Now and then bar in nashvile (omakase coffee bar)  
   
-Not sure how to make financially viable  
+Not sure how to make financially viable.  
   
 (Question for someone to journal about)  
 What have you learned about yourself Steven and Andrew?  
   
 (Steve)  
-Betterhelp online therapy [here] at zapcat  
+Betterhelp online therapy [here] at Zapcat!  
   
   
-Learning not to be completely vulnerable and wrap my ego in zapcat  
-some people [at zapcat]  are on ego journeys trying to kill their ego  
+Learning not to be completely vulnerable and wrap my ego in Zapcat.  
+Some people [at Zapcat]  are on ego journeys trying to kill their ego.  
   
 The first time someone with a good pallete came in and value[d] [my coffee lineup/choice]  
-and then when Nate came in and did not like it [broke his hart]  
+and then when Nate came in and did not like it [broke his hart].  
   
 Steve loves Zapcat  
 coffee is super weird   
   
-[Nate] came back and did not like it  
-made another thing - oh nate [will] get this! [and he enjoyed]  
+[Nate] came back and did not like it.  
+Made another thing - "oh Nate [will] get this!" [and he enjoyed]  
   
-The business is not everything about me - really easy for every shot of espresso to be this is not you  
-hyper focus on what you like, that is fine  
+[Remember:] The business is not everything about me - really easy for every shot of espresso to be [everything about you, but] [the shot of espresso] is not you  
+hyper focus on what you like, that is fine. [good enough]  
   
-Having a community that is so invested  
+[Feels good] having a community that is so invested.  
 (Steve feels better after talking)  
   
 (Andrew)  
 Andrew talks about transparency  
 taking risks, and thats the only way you can get somewhere.  
   
-Always feel unworthy and have to deal with imposter syndrome  
-but hey, "I feel that way" - keep moving forward  
+Always feel unworthy and have to deal with imposter syndrome.  
+But hey, "I feel that way" - keep moving forward.  
   
-Overcoming imposter syndrome, I work at all the time  
+Overcoming imposter syndrome, I work at all the time.  
   
-Drip coffee with milk, we give him a lot of samples and today he got the coffee black  
-talking to people. I love to give samples out  
+Drip coffee with milk, we give him a lot of samples and today he [a regular] got the coffee black.  
+Talking to people. I love to give samples out.  
   
-No laptop bar  
-bar is reserved  
+No laptop bar,  
+bar is reserved.  
   
 (Steve)  
 Weird Zapcat thing  
-celebrity couple names  
+celebrity couple names.  
   
 Milkbar in New York [could not get friends to go to try it for him]  
 needed an approachable cereal milk latee  
   
-Trevor [one of his regulars]  has changed and wants funky coffee now  
-force people to bonus situations  
+Trevor [one of his regulars] has changed and wants funky coffee now  
+[Steve tries to] force people to bonus situations.  
   
 "Help people have their coffee moment"  
