@@ -5,18 +5,18 @@ Jared Tucker:
 Mentions: Coffee professional discord   
 
 In the discord you will find  
-Advice on recipees and things like that ... message us on floridacoffeeculture to get that link   
-Baristas can get discounts on florida coffee culture keychain   
+Advice on recipees and things like that ... message us on Florida Coffee Culture [Instagram] to get that link.  
+Baristas can get discounts on Florida Coffee Culture keychain.   
 
 Andrew Curry:  
-What finding a career in coffee means to me  
+What finding a career in coffee means to me.  
 Noticed, for everyone that works in coffee there is an  
 
 aha moment  
 
 A pivital moment that fundamentally changes how we view coffee  
 for me it was at a  
-japan ucc coffee diner in kyoto  
+Japan UCC coffee diner in Kyoto  
 living in poke at the time  
 
 On the way back, I was sitting in the train station and  
@@ -35,7 +35,7 @@ Okay, coffee is really cool.
 
 Moved to San Francisco with a food truck event company.  
 
-Trucks would gather and put on music  
+Trucks would gather and put on music.  
 
 Loved it.  
 
@@ -132,14 +132,14 @@ Super energetic staff!!
 [oh I] forgot, ...[here is what] led to own cafe. A popup in Orlando  
   
 Living in charleston, saw a friend build out a Japanese Kei Truck platform.  
-Great idea! lets go get a Kei Truck in florida!  
+Great idea! lets go get a Kei Truck in Florida!  
   
 Popup cart  
 [photo 9] Photo of the cart.  
   
 Ran with a Decent.  
   
-[photo 10?] "The heavy" in orlando ... used to be a seafood market they moved to a spot called "garden tiger".  
+[photo 10?] "The Heavy" in Orlando ... used to be a seafood market they moved to a spot called "Garden Tiger".  
 We had a truck built out.  
   
 [photo 11] Photo of a super cool truck.  
@@ -157,21 +157,21 @@ Sold the truck to our friends in charleston who were the inspiration to get star
 (Steve)  
 Going from day job to ...   
   
-tldr of Zapcat is ... we were offered as a popup deal  
-had a normal office job  
-had a small roasting company back in the day  
+tldr of Zapcat is ... we were offered as a popup deal.  
+Had a normal office job.  
+Had a small roasting company back in the day.  
   
-Zapcat was creative outlet   
-then oh man not doing day job well  
-not able to fully commit to zapcat.  
+Zapcat was creative outlet.   
+Then, oh man, not doing day job well.  
+Not able to fully commit to zapcat.  
   
 Serendipitous moment  
-I was [a] home inspeactor that was day job  
+I was [a] home inspector, that was day job.  
   
 Housing market was not doing well.  
 At that point had not paid self dollar we had put everything into it.  
   
-[observation] Transparency is a cool thing in coffee,  
+[Observation] transparency is a cool thing in coffee,  
 morgage and 2 kids at home, still in the thick of it.  
   
 So passionate, loves coffee  
@@ -180,10 +180,10 @@ will make money in future.
 Hope Zapcat will make more money  
 definately [you all] should not do what I do.  
   
-[I] Don't care about the P&L  
+[I] [did not] care about the P&L  
   
-[His advice,] figure out business side of it then go  
-but he did the inverse  
+[His advice,] figure out [the] business side of it then go  
+but he did the inverse.  
   
 But now I should probably learn what a P&L is.  
 [What we did was to] just kind of send it!  
@@ -192,33 +192,32 @@ If you are passionate it usually works out.
   
 (Switch Mic)  
 (Andrew)  
-had small money saved was not much and said  
-if we are going to do it you got to do it  
+Had small money saved was not much, and said,  
+if we are going to do it, you got to do it.  
   
-we put everything on the credit cards  
-you have to work  
+We put everything on the credit cards  
+"you have to work".  
   
-we all work a lot. and you have to know it will work out  
+We all work a lot. And you have to know it will work out.  
   
 (Pass Mic)  
-question to steve: were you a barista before opening zapcat?  
+(Question to Steve:) were you a barista before opening Zapcat?  
   
 (Steve)  
 [My Coffee Moment]  
-Perq (australian cafe) - I got into coffee  
+Perq (Australian Cafe) - I got into coffee  
 was drinking frappachinos.  
   
-2 group slayer on their bar  
-wife got job at bold bean as opening staff  
+2 group Slayer on their bar.  
+Wife got job at Bold Bean as opening staff  
   
-Back in the day, bold bean protocol  
-Wife/zapcat co-owner he was looking at [slayer machine] and it zapped his brain.  
+Back in the day, Bold Bean protocol  
+Wife/zapcat co-owner, [Steve] was looking at [slayer machine] and it zapped his brain.  
   
-[Steve] got into espreso   
-when she was working there.  
+[Steve] got into espreso when she was working there.  
   
-[My thinking was] if I buy a machine, I wont need to spend money at cafe.  
-We got super into it.   
+[My thinking was,] if I buy a machine, I wont need to spend money at cafe.  
+We got super into it.  
   
 Brevel dual boiler, rotary pump.  
   
@@ -227,12 +226,12 @@ What inspired [your coffee shop] design?
   
 (Andrew)  
 Coffee + wine + small plate  
-Bar Citra built the interior design  
+Bar Citra built the interior design.  
   
 Scandanavian - Rachel  
-they did an amazing job and we are lucky to be surrounded with such an environment every day.  
+They did an amazing job and we are lucky to be surrounded with such an environment every day.  
 
-(question)
+(Question)
 How do you go from cart, to building a truck, to [a] storefront?  
 (Andrew)
 Building a truck took 7 months.  
@@ -266,7 +265,7 @@ But we already had a name so our roast/blend we named Zapcat.
 Had so many domains  
 ... sitting on the couch.  
   
-Good shakes coffee co?!??!??  
+Good Shakes Coffee CO?!??!??  
   
 Then she looked at me and ... Zapcat!  
 Kid was 10.  
@@ -279,10 +278,10 @@ Call him creative director.
 (Switch Mic)  
 (Andrew)  
 Address origin story  
-moved around a lot  
+moved around a lot.  
   
-Always changing addresses  
-what is an address?  
+Always changing addresses.  
+What is an address?  
   
 "The place you come home to"  
   
@@ -300,7 +299,7 @@ People used to take [Andrew] out for lunch.
 [If] people want to travel, we will be short staffed.  
 Treat them how you want to be treated.  
   
-[also have] Company parties.  
+[Also have] company parties.  
   
 (Steve)  
 Still have not had year end party. [Regret expressed]  
@@ -330,7 +329,7 @@ Did not need to sell out on drinks.
 It was a side hustle so we put weirdest coffees on espresso.  
 ... still very much into coffee.  
   
-So kelly did design   
+So Kelly did design   
 and [Steve] did whatever wanted with the bar.  
   
 Did not need to worry about rent and sell out.  
@@ -350,7 +349,7 @@ One of greatest joys now is when different regulars co-mingle because now they a
 Are you doing anything to go the other way?  
   
 (Andrew)  
-In japanese "Omotenashi", "do good to others without expecting anything in return".  
+In Japanese "Omotenashi", "do good to others without expecting anything in return".  
 Try to greet everyone that way and provide [a] service.  
   
 They can do what they want in the space and we will provide a service.  
@@ -377,23 +376,23 @@ either crying or laughing.
 (Question)  
 I am a believer in goals, where do you see Zapcat or Address in a year?  
 (Steve)  
-Zapcat, no hard goals  
+Zapcat, no hard goals.  
   
 The building is super weird  
-... some stuff for me not to write down you had to be there  
+... some stuff for me not to write down, you had to be there.  
   
 Had to do some creative things  
-... another thing not to name  
+... another thing not to name.  
   
 Would love to in a year still be in this building  
-7 years left on lease and would love to be there till they tear [the building] to the ground  
+7 years left on lease and would love to be there till they tear [the building] to the ground.  
   
 But [lease] can be canceled any time   
   
-[?] brush up on portuguese  
+[?] brush up on portuguese? [Steve is contemplating what they might do if lease was canceled?]  
 
 (Andrew)  
-Going to origin for the beans for address  
+Going to origin for the beans for address.  
   
 (Question)  
 How do you find your roasters?  
@@ -429,7 +428,7 @@ CEO of Bluebottle purchased out, Brian.
 CEO was on bar for hours washing dishes.  
   
 Showed cared for people,  
-so andrew tries to do that as well.  
+so Andrew tries to do that as well.  
   
 (plug) Andrew watches valor podcast [which] has great resources, cafe viability spreadsheet.  
   
@@ -466,7 +465,7 @@ had a friend who designed the machine.
 Had a friend who had slayer steam and he worked with it  
 digital display used to break down a lot.  
   
-(question)  
+(Question)  
 Thoughts on coffee as an art vs commodity?  
 (Steve)  
 Now and then bar in nashvile (omakase coffee bar)  
@@ -478,7 +477,6 @@ What have you learned about yourself Steven and Andrew?
   
 (Steve)  
 Betterhelp online therapy [here] at Zapcat!  
-  
   
 Learning not to be completely vulnerable and wrap my ego in Zapcat.  
 Some people [at Zapcat]  are on ego journeys trying to kill their ego.  
@@ -502,10 +500,10 @@ hyper focus on what you like, that is fine. [good enough]
 Andrew talks about transparency  
 taking risks, and thats the only way you can get somewhere.  
   
-Always feel unworthy and have to deal with imposter syndrome.  
+Always feel unworthy and have to deal with Imposter Syndrome.  
 But hey, "I feel that way" - keep moving forward.  
   
-Overcoming imposter syndrome, I work at all the time.  
+Overcoming Imposter Syndrome, I work at all the time.  
   
 Drip coffee with milk, we give him a lot of samples and today he [a regular] got the coffee black.  
 Talking to people. I love to give samples out.  
